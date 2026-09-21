@@ -6,6 +6,7 @@
 
 </p>
 <sup><p align="center"> ꒰ঌ C+H always ! ~ Whisp 2 int ! ໒꒱ </p></sup>
+<sup><p align="center"> ୨⎯ IWEC ! im very paranoid ⎯୧ </p></sup>
 <sup><p align="center"> ・┆✦ʚ usually drawing if on ponytown! ɞ✦ ┆・ </p></sup>
 <sup><p align="center"> ⏔ ꒰ ᧔ usually around cafe! ᧓ ꒱ ⏔ </p></sup>
 <sup><p align="center"> ⋆ ˚｡⋆୨ ʚMEDKIT & CHANCE YUME!ɞ ୧⋆ ˚｡⋆ </p></sup>
