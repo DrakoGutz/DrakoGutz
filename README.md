@@ -3,10 +3,10 @@
 
 > <p align="center"> $\color{#F24692}{\text{ ꒰ঌ BYI ໒꒱ }}$
 > <p align="center"> <sup> $\color{#98F5E6}{\text{ I am a very paranoid phernal! i tend to overthink a lot! please keep that in mind when interacting with me <3 }}$ </sup>
-> <p align="center"> <sup> $\color{#98F5E6}{\text{ ⏔⏔⏔ ꒰ ✧ ꒱ ⏔⏔⏔ }}$ </sup>
-> <p align="center"> <sup> $\color{#98F5E6}{\text{ NONSHARING MEDKIT YUMESHIPPER AND SUBSPACE KIN. }}$ </sup>
-> <p align="center"> <sup> $\color{#98F5E6}{\text{ MINOR - 15 }}$ </sup>
 
+> <p align="center"> $\color{#F24692}{\text{ ꒰ঌ INFO! ໒꒱ }}$
+> <p align="center"> <sup> $\color{#98F5E6}{\text{ Often in Phighting area! or occasionally near cafe! }}$ </sup>
+> <p align="center"> <sup> $\color{#98F5E6}{\text{ MINOR - Nonsharing Medkit Yume - SubspaceIRL }}$ </sup>
 
 <p align="center"><img width="500" height="4" alt="tumblr_2b60ec9978edc103a098e1afcc75a539_740fa47f_500" src="https://github.com/user-attachments/assets/89d6f497-6ede-4ffd-8eb3-204265c58359" />
 
