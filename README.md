@@ -1,4 +1,4 @@
-## <p align="center"> $\color{#E32279}{\text{ THE REAL SUBSPACE }}$
+<p align="center"># $\color{#E32279}{\text{ THE REAL SUBSPACE }}$
 <p align="center"><img width="500" height="12" alt="tumblr_66b72989b3e79bbf316dfff2a25da354_c16fb590_500" src="https://github.com/user-attachments/assets/f01bc35d-45e5-4de2-98eb-448d775baa6a" />
 
 > $\color{#F24692}{\text{ ꒰ঌ BYI ໒꒱ }}$
