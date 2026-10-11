@@ -1,23 +1,6 @@
-<img width="2048" height="154" alt="tumblr_d421e110aa00d20508dc2ac452caedbf_34b94e0f_2048" src="https://github.com/user-attachments/assets/e4845c66-4bd4-49ea-9227-d6e485944734" />
+<p align="center"><img width="500" height="12" alt="tumblr_66b72989b3e79bbf316dfff2a25da354_c16fb590_500" src="https://github.com/user-attachments/assets/f01bc35d-45e5-4de2-98eb-448d775baa6a" />
 
-
-**<p align="center">THE REAL SUBSPACE</p>**
-<p align="center"><img width="200" height="200" alt="subspace-phighting" src="https://github.com/user-attachments/assets/79ee7b5b-9b45-4749-bc0c-b1401bb60fbf"/> <img width="200" height="200" alt="phinisher-phighting" src="https://github.com/user-attachments/assets/d67e2469-772e-45ec-bdef-6774b43cae8f" />
-
-<details>
-<summary><p align="center"><sup>˚₊‧꒰ა Before You Int! ໒꒱ ‧₊˚</sup></p></summary>
-  
-<p align="center"> <sup>⌞i am an extremely paranoid inphernal! please IWEC at all times!⌝</sup> </p>
-  
-  
-</details>
-<details>
-<summary><p align="center"><sup>˚₊‧꒰ა Other info! ໒꒱ ‧₊˚</sup></p></summary>
-  
-<p align="center"> <sup>⌞Medkit Yume! Double please dni! || Im usually sitting around the cafe! W2I and C+H always! || Im usually drawing, writting or on roblox if im sitting on ponytown!⌝</sup> </p>
-  
-  
-</details>
+$\color{#fc8403}{\text{ uwooh }}$
 
 <p align="center"><img width="500" height="4" alt="tumblr_2b60ec9978edc103a098e1afcc75a539_740fa47f_500" src="https://github.com/user-attachments/assets/89d6f497-6ede-4ffd-8eb3-204265c58359" />
 
