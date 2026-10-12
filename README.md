@@ -3,6 +3,7 @@
 
 > <p align="center"> $\color{#F24692}{\text{ ꒰ঌ BYI ໒꒱ }}$
 > <p align="center"> <sup> $\color{#98F5E6}{\text{ I am a very paranoid phernal! i tend to overthink a lot! please keep that in mind when interacting with me <3 }}$ </sup>
+> <p align="center"> <sup> $\color{#98F5E6}{\text{ also mentally ill, im recovering hopefully. but alot of things can be triggering please be careful with how and what you talk to me about mostly regarding mental health or food <3 }}$ </sup>
 
 
 <p align="center"> <img width="439" height="19" alt="tumblr_04c3bf477786d652c9cb7ec2a6c79db5_9490f250_500" src="https://github.com/user-attachments/assets/592566e6-8349-4eba-a350-dd127b4ae90e" />
