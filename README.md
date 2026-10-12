@@ -2,7 +2,8 @@
 <p align="center"><img width="700" height="14" alt="tumblr_66b72989b3e79bbf316dfff2a25da354_c16fb590_500" src="https://github.com/user-attachments/assets/f01bc35d-45e5-4de2-98eb-448d775baa6a" />
 
 > <p align="center"> $\color{#F24692}{\text{ ꒰ঌ BYI ໒꒱ }}$
-> <p align="center"> <sup> $\color{#98F5E6}{\text{ I am a very paranoid phernal! i tend to overthink a lot! please keep that in mind when interacting with me <3 }}$ </sup>
+> <p align="center"> <sup> $\color{#98F5E6}{\text{ I am both paranoid and mentally ill! please interact with extra caution ! i tend to overthink and get paranoid over simple things! some topics regarding severe mental }}$ </sup>
+> <p align="center"> <sup> $\color{#98F5E6}{\text{  illness or health can be triggering to me. Please just be careful speaking to me sorry for the hassle! }}$ </sup>
 
 
 <p align="center"> <img width="439" height="19" alt="tumblr_04c3bf477786d652c9cb7ec2a6c79db5_9490f250_500" src="https://github.com/user-attachments/assets/592566e6-8349-4eba-a350-dd127b4ae90e" />
